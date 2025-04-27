@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-04-28 | [Halema'uma'u Crater's lava lake, Kīlauea Caldera, Hawai'i Volcanoes National Park, Hawaii (© Stephen Matera/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.KilaueaCaldera_EN-US7764962675_UHD.jpg) 
+
 2025-04-27 | [Grove of redwoods in Redwood National and State Parks, California (© Bob Pool/Getty Images)](https://cn.bing.com/th?id=OHR.RedwoodGrove_EN-US3412092024_UHD.jpg) 
 
 2025-04-25 | [Spire Cove in Kenai Fjords National Park, Seward, Alaska (© Wander Photography/Getty Images)](https://cn.bing.com/th?id=OHR.KenaiSpires_EN-US3294247007_UHD.jpg) 
